@@ -1,1 +1,1 @@
-dsfgjkhs;rlkijhg;hjfgh;ld
+И че тут писать, я хз
